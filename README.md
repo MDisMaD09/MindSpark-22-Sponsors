@@ -1,0 +1,1 @@
+# MindSpark-22-Sponsors
